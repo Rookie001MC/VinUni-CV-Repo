@@ -1,30 +1,31 @@
 ## ABOUT YOURSELF (2-3 sentences.)
-- That one kid who is regarded as a nerd of the class.
-- Interested in finding out more about the world surrounds us, in particular technology, by tearing stuffs apart and reassemble them.
-- Always ready to allocate part of my time to help others in need.
-
+- A humble but straightforward person, who strives for knowledge 
 ## ABILITIES
-- Always ready to lend a helping hand.
-- Love to solve real-life problems, however trivial it may be.
+- Always love to lend a hand; Programming; Relatively proficient in languages; Always curious of things surrounding us.
 
 ## ASPIRATION:
-- To create meaningful applications for everyday use
-- To solve problems, 
- 
+- Applying my own programming skills to create practical and useful applications.
 
 ## CREATIVITY
-- [Also a photographer, besides being a amateur coder.](instagram.com/realrookie001) 
-- 
+- Portfolio: (may have to flex a bit :)))
+- [All the little things of life encapsulated in photos.](instagram.com/realrookie001) 
 
 ## COMMITMENT
+- Solving issues of the world using the skills learned. 
 
 ## EXPERIENCES
 - Member of HLK Technology Club (2019-2022) (now Co-Leader)
 - Member of the BSO Volunteer Club (2021-2022)
+- Ex-Co-Founder of Digital Aesthetics Fraternity (2021-2022) (now Inactive)
 
 ## REWARDS AND SCHOLARSHIPS
-- Round 1 Participant, Round 2 Stand-in (second-place) - Speak to Lead Competition, hosted by the U.S. Consulate (2020-2021) 
-- Second Prize - Provincial Gifted Students' Contest (2020-2021; 2021-2022)
+- Speak to Lead Competition, hosted by the U.S. Consulate (2020-2021) 
+  - Round 1 Participant
+  - Round 2 Stand-in - Second Place 
+
+- Provincial Gifted Students' Contest 
+  - Second Prize - 2020-2021; 2021-2022
+
 - Member of the National Gifted Students' Contest (2020-2021; 2021-2022)
 
 

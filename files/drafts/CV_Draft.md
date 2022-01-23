@@ -1,21 +1,21 @@
 ## ABOUT YOURSELF (2-3 sentences.)
-- A humble but straightforward person, who strives for knowledge 
-*still not done* 
+- A humble but straightforward person, who strives for knowledge. 
+- A wayward dreamer who always persevere for such dreams.
 
 ## ABILITIES
-- Always love to lend a hand; Programming; Relatively proficient in languages; Always curious of things surrounding us.
+- Okay with programming; Compassionate; Relatively proficient in languages; Always curious of things surrounding us.
 
 ## ASPIRATION:
 - Applying my own programming skills to create practical and useful applications.
-*still not done*
+*Still not done*
 
 ## CREATIVITY
-- Portfolio: (may have to flex a bit :)))
+- Portfolio: (may have to re-learn my skills a bit :)))
 - [All the little things of life encapsulated in photos.](instagram.com/realrookie001) 
 
 ## COMMITMENT
 - Solving issues of the world using the skills learned. 
-*still not done*
+- Starting a startup within a few years or get a job.
 
 ## EXPERIENCES
 - Member of HLK Technology Club (2019-present) (now Co-Leader)
